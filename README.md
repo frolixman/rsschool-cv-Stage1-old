@@ -1,1 +1,1 @@
-# rsschool-cv
+https://frolixman.github.io/rsschool-cv/cv
